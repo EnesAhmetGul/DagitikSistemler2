@@ -30,4 +30,4 @@ Bu proje kapsamında:
 
 
 
-Youtube Linki:
+Youtube Linki: https://youtu.be/jvtoN1pDyus
